@@ -1,19 +1,4 @@
-Paris Saint-Germain face à Stade Brestois commence le 19 févr. 2025 à 20:00 UTC au Parc des Princes stade, Paris ville de, France. C'est un match de Ligue des champions de l'UEFA, Knockout Phase.
-1 rencontres cette saison entre Paris Saint-Germain et Stade Brestois.
-Sur le live Sofascore, vous trouverez les face à face entre Paris Saint-Germain et Stade Brestois. Sofascore est la meilleure façon de suivre ce match avec plein de fonctionnalités. Par exemple vous pouvez:
-Sachez qui a marqué dans le match en direct
-Obtenez les informations sur l'équipe dominant le match en utilisant Attack Momentum
-Suivez les statistique détaillées comme la possession, les tirs, les corners, les grosses occasions, les cartons, les passes clés, les duels et plus
-Suivez tous les matchs à domicile et à l'éxtérieur en Ligue des champions de l'UEFA, Knockout Phase
-Regardez le favoris selon la communauté Sofascore.
-Toutes ces fonctionnalités peuvent vous aider à faire votre prédiction entre Paris Saint-Germain et Stade Brestois. Bien que Sofascore ne vous permette pas de parier directement, vous y trouverez les meilleures cotes et sites de paris sportifs. Les cotes en direct de U-TV sont consultables sur la section live de Football .
-Où regarder Paris Saint-Germain vs Stade Brestois ? Dans la section TV, vous trouverez la liste des chaînes diffusant Paris Saint-Germain – Stade Brestois en direct. Vous pouvez également voir le match via nos partenaires paris sportifs ou via les liens légaux sur Sofascore.
-Détails de l'événement:
-NOM: Paris Saint-Germain - Stade Brestois
-DATE: 19 févr. 2025
-TEMPS: 20:00 UTC
-STADE: Parc des Princes, Paris, France
-Plus d'informations:
-Paris Saint-Germain scores en direct , calendrier et résultats
-Stade Brestois scores en direct , calendrier et résultats
-Sofascore résultats en direct est disponible pour iPhone, iPad, Android (sur le Google Play Store) et pour Window phone. Vous pouvez nous retrouver dans différentes langues sur ces plateformes sous le même nom de "Sofascore". Installez l'application Sofascore et suivez Paris Saint-Germain Stade Brestois en direct sur votre mobile!
+PSG - Brest : sur quelle chaîne et à quelle heure voir le match de Ligue des Champions en direct ?
+En s’imposant facilement à Brest lors du match aller des barrages de l’UEFA Champions League, le PSG a fait un grand pas vers les huitièmes de finale. Les Parisiens vont devoir rester sérieux pour préserver leur dynamique. On vous dit tout sur ce match retour, notamment sur quelle chaîne et à quelle heure voir PSG - Brest en direct à la TV.
+Votre e-mail
+Après un début d’UEFA Champions League compliqué, le Paris Saint-Germain a enfin trouvé son rythme. L’équipe entraînée par Luis Enrique reste sur 4 succès de rang. Après avoir remporté ses 3 derniers matchs de poule, le PSG s’est imposé 0-3 sur le terrain du Stade Brestois lors du match aller des barrages de la C1. Vitinha a ouvert le score sur pénalty, avant qu’Ousmane Dembélé n’inscrive un doublé. En grande forme, l’international français est le meilleur buteur en Europe depuis le début d’année 2025. Resté sur le banc face à Toulouse en championnat ce week-end, Ousmane Dembélé a vu sa série de 8 matchs de rang en marquant au moins un but s’arrêter. Un record pour un joueur évoluant avec le maillot du club de la capitale. Sa saison n’en reste pas moins exceptionnelle, lui qui a fait trembler les filets à 16 reprises en championnat et 6 fois en UEFA Champions League. Toujours invaincu en Ligue 1 McDonald’s, le PSG est largement en tête du classement général. Brest, de son côté, est 9ème. Quand les Parisiens s’imposaient 0-1 face au TFC, les Bretons ont été accrochés à domicile par l’AJ Auxerre il y a quelques jours et s’éloignent de la course à l’Europe (2-2). PSG - Brest : sur quelle chaîne et à quelle heure voir le match de Ligue des Champions en direct ?
